@@ -6,6 +6,3 @@ need some pations
 so no nedd to worry about this we can make it eassy by practing it 
 thank you for your pations 
 bye
-hello doing agaiam for succcess dont worry it will come
-hope for the best
-thank you 
